@@ -11,3 +11,4 @@ SAM.exe is malware, malware is no joke!
 
 SAM.exe is harmless and cant to anything exept annoy your friend
 MAKE SURE YOU KNOW WHAT YOU ARE DOING BEFORE RUNNING SAM.exe
+Remeber Sam is watching :)
